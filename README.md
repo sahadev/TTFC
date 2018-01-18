@@ -22,3 +22,9 @@
 
 我们的愿景：成为在中国技术圈内最有影响力的符号。
 
+
+
+
+
+不忘初心，方得始终。
+Never forget why you started, and your mission can be accomplished.
